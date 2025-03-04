@@ -4,7 +4,7 @@
 - 💞️ I’m free to callaborate.
 - 📫 I am free to talk to anyone out there. Contact Me : prnncebajgain@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: The more involve in the process of creation , the more you gather the fundamentals .
+- ⚡ Fun fact: The more you involve in the process of creation , the more you gather the fundamentals .
 
 <!---
 mainprins/mainprins is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

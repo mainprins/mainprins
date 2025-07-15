@@ -2,7 +2,7 @@
 - 👀 My interest severely puts its hand in the process of creation and development of new and wonderful innovations .
 - 🌱 I’m currently gathering and increasing knowledge in the beautiful world of embeddeded systems and IoT .
 - 💞️ I’m free to callaborate.
-- 📫 I am free to talk to anyone out there. Contact Me : prnncebajgain@gmail.com
+- 📫 I am free to talk to anyone out there. Contact Me : princebajagainprof@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: The more you involve in the process of creation , the more you gather the fundamentals .
 
